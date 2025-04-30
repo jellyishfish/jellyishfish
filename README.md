@@ -8,5 +8,5 @@
    welcome !
 
 
-
+idk how to make this more detailed sorryy haha..... help
 
